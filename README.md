@@ -1,3 +1,4 @@
-From asgar' son of Odin
-watting to go valhalla
-I no have enimes
+Welcome to My Realm ⚔️
+🛡️ FROM ASGARÐ, SON OF ODIN 🛡️
+🍺 Waiting to Go to Valhalla 🍺
+                                                 ⚔️ I HAVE NO ENEMIES ⚔️
